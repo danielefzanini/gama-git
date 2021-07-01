@@ -1,1 +1,1 @@
-# gama-git
+Estou adorando o curso.
